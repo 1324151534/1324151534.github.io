@@ -13,3 +13,6 @@ Our Website is [xdugroups.cn](https://xdugroups.cn/)
 ### 群号：此项隐藏 
 ## [NSFW]西电蒸汽平台交流讨论群
 ### 群号：668298254 [加入群聊](https://jq.qq.com/?_wv=1027&k=cY6jn2BV)
+# 3. 中南计科院群
+## 计算机最终抵御战线GEN3
+### 群号：857851818 [加入群聊](https://jq.qq.com/?_wv=1027&k=NCLVl3Gk)
