@@ -6,3 +6,5 @@ Xidian University QQ Group Nuclear Defense Program
 ### 518413482
 ## 酷安备用群3.0
 ### 640701630
+## [NSFW]西电蒸汽平台交流讨论群
+### 668298254
